@@ -1,5 +1,5 @@
 # 💫 About Me:
-Data Analyst | Student | Open to contribute
+Data Analyst | Student | Open to contribute | Aspiring Product Manager
 
 
 ## 🌐 Socials:
